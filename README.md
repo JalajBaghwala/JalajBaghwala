@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **baghwalajalaj@gmail.com**
 
-- 📄 Know about my experiences [wwwwww](wwwwww)
+- 📄 Resume [Resume](https://drive.google.com/file/d/1yYvLcUVps2x0Rf73wrVCi4yBnV_uFRJh/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
